@@ -1,5 +1,5 @@
 - 👋 Hey, I’m PE
-- 👀 I’m just trying to learn some basic coding and other stuff
+- 👀 I’m just trying to learn some basic coding and stuff
 - 🌱 I’m currently TRYING to learn coding 
 - 💞️ I’m not looking to work in anything yet, sorry (I guess)
 - 😄 Pronouns: HE/HIM 
